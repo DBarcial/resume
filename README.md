@@ -1,0 +1,1 @@
+Welcome to my teaching portfolio. This website showcases my professional background, teaching experience, skills, certifications, and philosophy of education as a science teacher. It is designed to provide an overview of my qualifications and classroom practice in science education across both Philippine and U.S. school settings.
